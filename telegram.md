@@ -7,6 +7,186 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 01:44
+---
+
+## VahidOOnLine — post 239806
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239806_1778624064.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+الجزیره به نقل از منابع دیپلماتیک گزارش داد ۱۱۲ کشور به پیش‌نویس قطعنامه‌ای در شورای امنیت سازمان ملل پیوسته‌اند که از سوی آمریکا و کشورهای خلیج فارس درباره آزادی کشتیرانی در تنگه هرمز ارائه شده است.
+
+به گفته این منابع، هند، ژاپن و بیشتر کشورهای اروپایی در میان حامیان این پیش‌نویس قرار دارند.
+
+منابع الجزیره همچنین گفتند حمایت ۱۱۲ کشور از این قطعنامه، نشان‌دهنده پشتیبانی گسترده بین‌المللی از ابتکار آمریکا و کشورهای خلیج فارس درباره تنگه هرمز است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239804
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239804_1778624065.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شروین تبریزی، سخنگوی اورژانس تهران اعلام کرد طوفان در تهران تاکنون چهار مصدوم داشته است که البته همه این مصدومان در محل درمان شدند.
+او خاطرنشان کرد با توجه به اینکه وزش باد دقایقی پیش متوقف شد، احتمال افزایش مصدومان وجود دارد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341618
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341618_1778624065.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A trapped dog was rescued after falling more than 21 feet "deep underground" in England's North York Moors.
+
+A brave cave diver managed to squeeze through the tight gaps to reach the trapped pup and lift her to safety.
+</div>
+
+## kianmeli1 — post 87374
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87374_1778624067.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت خیابان‌ها و پارک‌های پردیس پس از زلزله امشب
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87373
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87373_1778624068.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حضور مردم در حاشیه شهر بومهن پس از وقوع زلزله امشب
+
+برخی مردم در خیابان خوابیده اند
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 336893
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336893" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ خشم انباشتهٔ مردم کی فوران خواهد کرد؟
+</div>
+
+## IranIntlTV — post 336892
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336892_1778624070.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا به خواندن اسامی جاویدنام‌ها ادامه خواهم داد؟ چرا تکرار نام جاویدنام‌ها اهمیت ملی دارد؟ و چرا جمهوری اسلامی از تکرار نام جاویدنام خشمگین و عصبانی است؟
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336891
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336891_1778624071.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شروین تبریزی، سخنگوی اورژانس تهران اعلام کرد طوفان در تهران تاکنون چهار مصدوم داشته است که البته همه این مصدومان در محل درمان شدند.
+او خاطرنشان کرد با توجه به اینکه وزش باد دقایقی پیش متوقف شد، احتمال افزایش مصدومان وجود دارد.
+
+https://iranintl.com/202605126188
+</div>
+
+## ManotoTV — post 105382
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105382_1778624072.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+الجزیره به نقل از منابع دیپلماتیک گزارش داد ۱۱۲ کشور به پیش‌نویس قطعنامه‌ای در شورای امنیت سازمان ملل پیوسته‌اند که از سوی آمریکا و کشورهای خلیج فارس درباره آزادی کشتیرانی در تنگه هرمز ارائه شده است.
+
+به گفته این منابع، هند، ژاپن و بیشتر کشورهای اروپایی در میان حامیان این پیش‌نویس قرار دارند.
+
+منابع الجزیره همچنین گفتند حمایت ۱۱۲ کشور از این قطعنامه، نشان‌دهنده پشتیبانی گسترده بین‌المللی از ابتکار آمریکا و کشورهای خلیج فارس درباره تنگه هرمز است.
+</div>
+
+## ManotoTV — post 105380
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105380_1778624073.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از تهران:
+«می‌گفت جنگ شد و بعد رها شد… همه‌چیز روی هوا موند و شرایط افتضاح‌تر شد.
+می‌گفت قبلش حداقل یه جور داشتیم زندگی می‌کردیم
+</div>
+
+## FarsiVOA — post 217580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺انجمن قلم آمریکا: جمهوری اسلامی بزرگترین دشمن زنان اهل قلم و ایران دومین زندان نویسندگان جهان است
+
+▪️انجمن قلم آمریکا، روز سه‌شنبه ۲۲ اردیبهشت در تازه‌ترین گزارش خود از «شاخص آزادی نوشتن» اعلام کرد جمهوری اسلامی ایران پس از چین، دومین زندان نویسندگان در جهان است و دو برابر میانگین جهانی، زنان اهل قلم را زندانی کرده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-pen-american-center-writers-prison/8149274.html
+@FarsiVOA
+</div>
+
+## manototv — post 105382
+
+<div align="center">
+  <a href="telegram/content/manototv_105382_1778624074.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+الجزیره به نقل از منابع دیپلماتیک گزارش داد ۱۱۲ کشور به پیش‌نویس قطعنامه‌ای در شورای امنیت سازمان ملل پیوسته‌اند که از سوی آمریکا و کشورهای خلیج فارس درباره آزادی کشتیرانی در تنگه هرمز ارائه شده است.
+
+به گفته این منابع، هند، ژاپن و بیشتر کشورهای اروپایی در میان حامیان این پیش‌نویس قرار دارند.
+
+منابع الجزیره همچنین گفتند حمایت ۱۱۲ کشور از این قطعنامه، نشان‌دهنده پشتیبانی گسترده بین‌المللی از ابتکار آمریکا و کشورهای خلیج فارس درباره تنگه هرمز است.
+</div>
+
+## manototv — post 105380
+
+<div align="center">
+  <a href="telegram/content/manototv_105380_1778624075.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از تهران:
+«می‌گفت جنگ شد و بعد رها شد… همه‌چیز روی هوا موند و شرایط افتضاح‌تر شد.
+می‌گفت قبلش حداقل یه جور داشتیم زندگی می‌کردیم
+</div>
+
+## alonews — post 119630
+
+<div align="center">
+  <a href="telegram/content/alonews_119630_1778624076.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حضور مردم در حاشیه شهر بومهن پس از وقوع زلزله امشب
+
+
+🔴برخی مردم در خیابان خوابیده اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 01:22
 ---
 
