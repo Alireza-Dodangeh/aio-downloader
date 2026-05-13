@@ -7,6 +7,1046 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 00:45
+---
+
+## VahidOOnLine — post 239987
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239987_1778706941.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، چهارشنبه ۲۳ اردیبهشت با انتشار پیامی در اکس نوشت بنیامین نتانیاهو «آنچه را که نهادهای امنیتی ایران پیش‌تر به رهبری ما منتقل کرده بودند» به‌صورت علنی بیان کرده است.
+عراقچی در ادامه نوشت «دشمنی با مردم ایران یک قمار احمقانه است» و همکاری با اسرائیل برای ایجاد تفرقه را «بخشودنی نیست» توصیف کرد. او همچنین هشدار داد افرادی که با اسرائیل برای ایجاد اختلاف همکاری کنند، «پاسخگو خواهند شد».
+پیش‌تر حساب رسمی وزارت خارجه اسرائیل روز چهارشنبه ۲۳ اردیبهشت‌ماه به نقل از دفتر نخست‌وزیری این کشور، سفر محرمانه بنیامین نتانیاهو به امارات متحده عربی هم‌زمان با حملات به جمهوری اسلامی را تایید کرده بود. دفتر نتانیاهو اعلام کرد او در این سفر با شیخ محمد بن زاید، رئیس امارات متحده عربی، دیدار کرده و این دیدار به «پیشرفتی تاریخی» در روابط دو کشور منجر شده است.
+در مقابل، وزارت خارجه امارات اعلام کرد هرگونه گزارش درباره سفرها یا توافق‌های اعلام‌نشده، تا زمانی که از سوی نهادهای رسمی منتشر نشود، فاقد اعتبار است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239986
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239986_1778706942.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه امارات متحده عربی گزارش‌ها درباره سفر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، یا استقبال از یک هیات نظامی اسرائیلی را رد کرد.
+
+سخنگوی وزارت خارجه امارات گفت روابط این کشور با اسرائیل، روابطی علنی است که در چارچوب توافق ابراهیم و به‌صورت رسمی و عمومی شکل گرفته و مبتنی بر روابط پنهانی یا توافق‌های مخفی نیست.
+
+او تاکید کرد هرگونه ادعا درباره سفرها یا توافق‌های اعلام‌نشده، تا زمانی که از سوی نهادهای رسمی امارات تایید نشود، بی‌اساس است.
+
+سخنگوی وزارت خارجه امارات همچنین از رسانه‌ها خواست در انتشار اخبار دقت کنند و از بازنشر اطلاعات تاییدنشده خودداری کنند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239984
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239984_1778706942.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه امارات متحده عربی اعلام کرد گزارش‌های منتشرشده درباره سفر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به این کشور صحت ندارد.
+پیش‌تر دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ آمریکا و اسرائیل با جمهوری اسلامی، به‌طور مخفیانه به امارات متحده عربی سفر کرده و در این سفر با محمد بن زاید آل نهیان، رییس امارات متحده عربی، دیدار کرد.
+وزارت خارجه امارات متحده عربی اعلام کرد روابط این کشور با اسرائیل علنی است و در چارچوب توافق‌نامه‌های ابراهیم که به‌طور عمومی اعلام شده‌اند، برقرار شده است.
+وزارت خارجه امارات متحده عربی افزود این روابط مبتنی بر محرمانگی نیست و هرگونه ادعا درباره سفرها یا ترتیبات اعلام‌نشده «بی‌اساس» است، مگر آن‌که به‌صورت رسمی از سوی امارات متحده عربی اعلام شود.
+عباس عراقچی در واکنش به سفر نتانیاهو به امارات متحده عربی در زمان جنگ، نوشت: همکاری با اسرائیل در این مسیر غیرقابل بخشش است. افرادی که برای ایجاد اختلاف با اسرائیل همکاری می‌کنند، پاسخگو خواهند شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239983
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239983_1778706943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت خارجه امارات متحده عربی با انتشار بیانیه‌ای، گزارش‌ها درباره سفر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به این کشور و همچنین پذیرش هرگونه هیات نظامی اسرائیلی در خاک امارات را تکذیب کرد.
+
+در این بیانیه آمده است روابط امارات و اسرائیل در چارچوب توافق ابراهیم، علنی و رسمی است و بر پایه دیدارها یا ترتیبات محرمانه شکل نگرفته است.
+
+وزارت خارجه امارات همچنین اعلام کرد هرگونه گزارش درباره سفرها یا توافق‌های اعلام‌نشده، تا زمانی که از سوی نهادهای رسمی منتشر نشود، فاقد اعتبار است.
+
+امارات در پایان از رسانه‌ها خواست از انتشار اطلاعات تاییدنشده و ایجاد برداشت‌های سیاسی خودداری کنند.
+
+حساب رسمی وزارت خارجه اسرائیل چهارشنبه ۲۳ اردیبهشت‌ماه در شبکه اجتماعی اکس، به نقل از دفتر نخست‌وزیری اسرائیل، سفر محرمانه بنیامین نتانیاهو به امارات متحده عربی هم‌زمان با حملات به جمهوری اسلامی را تایید کرده بود. دفتر نتانیاهو اعلام کرده بود او در این سفر با شیخ محمد بن زاید، رئیس امارات متحده عربی، دیدار کرده و این دیدار به «پیشرفتی تاریخی» در روابط دو کشور منجر شده است.
+
+پیش‌تر نیز گزارش‌هایی درباره انتقال سامانه دفاعی «گنبد آهنین» اسرائیل به امارات منتشر شده بود که مایک هاکبی، سفیر آمریکا در اسرائیل، آن را تایید کرده بود. همچنین گزارش‌هایی درباره مشارکت امارات در حملات علیه جمهوری اسلامی منتشر شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239982
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239982_1778706943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️محمد عباسی، از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴، چهارشنبه ۲۳ اردیبهشت در زندان قزل‌حصار اعدام شد. خبرگزاری میزان، وابسته به قوه قضاییه جمهوری اسلامی، خبر اجرای حکم اعدام او را منتشر کرد.
+بر اساس گزارش‌ها، مسئولان زندان قزل‌حصار خانواده محمد عباسی را برای ملاقات دعوت کرده بودند، اما پس از حضور در زندان، اجازه ملاقات آخر به آن‌ها داده نشد و خانواده پس از ترک زندان، تلفنی از اجرای حکم مطلع شدند.
+محمد عباسی در جریان انقلاب ملی ایران در ملارد بازداشت و سپس از سوی شعبه ۱۵ دادگاه انقلاب تهران به ریاست ابوالقاسم صلواتی، با اتهام «محاربه» به اعدام محکوم شده بود. در همین پرونده، حکم ۲۵ سال زندان فاطمه عباسی، دختر او، نیز تایید شده و او اکنون در زندان اوین نگهداری می‌شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239981
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239981_1778706943.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه العربیه چهارشنبه ۲۳ اردیبهشت‌ماه گزارش داد دولت لبنان با طرح شکایتی در شورای امنیت سازمان ملل، جمهوری اسلامی و سپاه پاسداران را به مداخله در امور داخلی این کشور و کشاندن لبنان به درگیری با اسرائیل متهم کرده است.
+
+احمد عرفه، نماینده دائم لبنان در سازمان ملل، اعلام کرد بیروت در این شکایت از شورای امنیت خواسته است جمهوری اسلامی را به‌دلیل اقداماتی که «خلاف منافع لبنان» بوده و این کشور را وارد «جنگی ویرانگر با پیامدهای فاجعه‌بار» با اسرائیل کرده، پاسخگو کند.
+
+او گفت در جریان این درگیری‌ها هزاران نفر کشته و زخمی شده‌اند و بیش از یک میلیون شهروند لبنانی آواره شده‌اند. به گفته عرفه، در این شکوائیه نهادهای وابسته به جمهوری اسلامی، به‌ویژه سپاه پاسداران، به اقدامات غیرقانونی و نادیده گرفتن تصمیمات دولت لبنان متهم شده‌اند.
+
+یوسف رجی، وزیر خارجه لبنان، چهارم فروردین‌ماه اعلام کرده بود سفیر تازه منصوب جمهوری اسلامی را به‌عنوان «عنصر نامطلوب» شناخته و از او خواسته است تا نهم فروردین خاک لبنان را ترک کند. سخنگوی وزارت خارجه جمهوری اسلامی در واکنش گفته بود سفیر جمهوری اسلامی لبنان را ترک نخواهد کرد و به ماموریت خود ادامه می‌دهد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239980
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239980_1778706944.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+سنای آمریکا طرح پیشنهادی برای پایان دادن به مشارکت نظامی این کشور در جنگ با جمهوری اسلامی را رد کرد.
+
+این طرح که با هدف الزام دولت آمریکا به خروج نیروهای درگیر در جنگ ارائه شده بود، با ۵۰ رای مخالف در برابر ۴۹ رای موافق تصویب نشد؛ جمهوری‌خواهان سنای آمریکا عمدتاً با محدود شدن اختیارات نظامی دونالد ترامپ مخالفت کردند.
+
+سه سناتور جمهوری‌خواه به این طرح رای مثبت دادند و لیزا مورکوفسکی، سناتور جمهوری‌خواه، برای نخستین بار از زمان آغاز جنگ، به درخواست خروج نیروهای آمریکایی از درگیری با جمهوری اسلامی رای داد.
+
+دموکرات‌ها در هفته‌های اخیر چندین طرح مشابه ارائه کرده‌اند و می‌گویند طبق قانون اساسی آمریکا، اختیار اعلام جنگ در دست کنگره است و باید اختیارات قوه مقننه در برابر دولت حفظ شود.
+
+بر اساس قوانین آمریکا، رئیس‌جمهوری می‌تواند در صورت وجود تهدید فوری، اقدام نظامی را آغاز کند، اما برای ادامه درگیری بیش از ۶۰ روز، نیاز به مجوز کنگره دارد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239979
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239979_1778706944.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش الحدث، دو پهپاد انتحاری مقر حزب دموکرات کردستان ایران در شمال اربیل عراق را هدف قرار دادند.
+
+همزمان رویترز به نقل از منابع امنیتی گزارش داد در این حمله پهپادی یک انبار سلاح و مهمات در داخل این اردوگاه هدف قرار گرفته است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239978
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239978_1778706945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز چهارشنبه ۲۳ اردیبهشت، اعلام کرد که مذاکره‌کنندگان ارشد ایالات متحده همچنان در حال «پیشرفت» در گفتگوهای صلح با جمهوری اسلامی هستند. این اظهارات در حالی مطرح می‌شود که تهران در هفته‌های اخیر مجموعه‌ای از پاسخ‌ها را ارائه کرده که مورد قبول ترامپ نبوده‌اند.
+
+ونس در گفتگو با خبرنگاران با اشاره به رایزنی‌های صبح امروز خود با جرد کوشنر و استیو ویتکاف و همچنین تعدادی از متحدان عرب، گفت: «فکر می‌کنم در حال پیشرفت هستیم؛ اما پرسش اساسی این است که آیا این پیشرفت برای عبور از خط قرمز رئیس‌جمهور کافی خواهد بود یا خیر».
+
+معاون رئیس‌جمهوری آمریکا تاکید کرد که دولت همچنان بر جلوگیری همیشگی از دستیابی جمهوری اسلامی به سلاح هسته‌ای متمرکز است و این موضوع را معیار اصلی هرگونه توافقی دانست. او افزود: «خط قرمز بسیار ساده است؛ رئیس‌جمهور باید اطمینان حاصل کند که مجموعه‌ای از حفاظ‌های امنیتی ایجاد شده است تا ایران هرگز نتواند به سلاح هسته‌ای دست یابد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11170
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11170_1778706945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دارن تحلیل میکنن چیکار کنن 😂😅
+@withyashar
+</div>
+
+## WithYashar — post 11169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوش‌چشم: ترامپ رفته چین التماس کنه تا میانجی بشه که ایران جنگ رو تموم کنه
+@withyashar
+</div>
+
+## mwarmonitor — post 9059
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9059_1778706945.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: بنیامین نتانیاهو به‌طور محرمانه به امارات متحده عربی سفر کرده و در جریان عملیات «شیر غران» علیه ایران با محمد بن زاید دیدار کرده است. i24 news @mwarmonitor
+</div>
+
+## mwarmonitor — post 9058
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️بمب‌افکن B-2 با شناسه «WENCH11» در یک پرواز رفت‌وبرگشت از پایگاه هوایی وایتمن (Whiteman AFB) به‌عنوان بخشی از یک تمرین فرماندهی راهبردی آمریکا (STRATCOM) در حال انجام عملیات است و از فرکانس HF سانتا ماریا 11309 استفاده می‌کند. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9057
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9057_1778706946.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸خبرنگار: سناتور، آیا بازه ۹۰ روزه در ۳۱ می (۱۰ خرداد) در مورد ایران، در این مقطع اهمیتی دارد؟
+🔹لیندسی گراهام: نه.
+🔸خبرنگار: چرا نه؟
+🔹لیندسی گراهام: چرا باید اهمیت داشته باشه؟ طبق «قانون اختیارات جنگی»؟ به نظرم این قانون کاملاً غیرقانونی و برخلاف قانون اساسی است. هر رئیس‌جمهوری این رو گفته و من هم باهاشون موافقم.
+فکر نمی‌کنم قانون اساسی اجازه بده که فرمانده کل قوا، فقط برای ۹۰ روز فرمانده کل باشه. اگه شما به عنوان عضو کنگره از عملکرد فرمانده کل قوا راضی نیستید، بودجه عملیات نظامی رو قطع کنید.
+هر راه دیگه‌ای غیر از این، باعث می‌شه ۵۳۵ نفر فرمانده کل قوا داشته باشیم! کل مفهوم «قانون اختیارات جنگی» خطرناک، پوچ و مضحکه و فقط منجر به هرج‌ومرج می‌شه.
+کنگره نمی‌تونه جنگ‌ها رو مدیریت کنه. اگه می‌خواید جنگ رو متوقف کنید، بودجه‌اش رو قطع کنید. این تنها قدرتیه که ما در کنگره داریم؛ نه بیشتر و نه کمتر.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9056
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9056_1778706947.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 واقعاً باید به حال این مملکت خون گریه کرد که فرماندهانش یک مشت جلبک‌مغزِ فاقد شعورند که بدیهی‌ترین مسائل عالم را به عنوان وحی مُنزل و استراتژی جنگی به خورد ملت می‌دهند. آخه مرتیکه‌ی مغزفندقی، فوتبال اگر تیمی نبود که یازده نفر آدم را با شورت ورزشی نمی‌فرستادند توی زمین!
+🔸آن سردار گوربه‌گور شده‌تان هم که وقتی زنده بود، هنرِ اول و آخرش گه خوردن اضافی و ورّاجی بود، حالا وصیت‌نامه‌ی فوتبالی‌اش شده مشقِ راهِ شما؟ «تیمی بازی کنید تا جام ببرید»؟ این سطح از بلاهت و نفهمی حتی برای گوسفند هم قفل است! ولی به حال آن جماعتی که استراتژیست‌هایش شمایید؛ الدنگ‌هایی که هنوز فرق ورزش تیمی و انفرادی را نمی‌فهمند اما برای سرنوشت یک کشور نسخه می‌پیچند. شما که کل افتخار تیمی‌تان، تیمی غارت کردن و تیمی ریدن به هیکل نظام است، بهتر است دهان چاک‌خورده‌تان را ببندید و با آن جملاتِ صدمن‌یه غازِ آن مِیِتِ ملعون، بیش از این نبوغِ جلبکی‌تان را به رخ نکشید. حماقت شما مرزهای بیولوژی را جابه‌جا کرده است!
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341681
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341681_1778706948.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Secretary of State Marco Rubio outlines the high-stakes push for China to confront Iran over its actions in the Persian Gulf in an exclusive sit-down with @seanhannity aboard Air Force One:
+
+“The Chinese have ships stuck in the Persian Gulf... A Chinese cargo got hit over the weekend. I'm sure Iran didn't do it deliberately but they did it, it happened. And so that's why these Chinese ships are stuck in there.”
+
+“It's a huge source of instability. It threatens to destabilize Asia more than any other part of the world because it's heavily reliant on the straits for energy.”
+
+“It’s in [China’s] interest to resolve this. We hope to convince them to play a more active role in getting Iran to walk away from what they're doing now and trying to do now in the Persian Gulf."
+</div>
+
+## FoxNewsTwitter — post 341680
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341680_1778706950.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Secretary of State Marco Rubio stresses the critical need for America to strategically navigate its complex relationship with China:
+
+@seanhannity : “You view China as our top geopolitical foe.”
+
+RUBIO: “Yeah, it’s both our top political challenge geopolitically and it’s also the most important relationship for us to manage.”
+
+“We're going to have interests of ours that are going to be in conflict with interests of theirs; to avoid wars and maintain peace and stability in the world, we're gonna have to manage those.”
+</div>
+
+## FoxNewsTwitter — post 341676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: The White House shares brand new photos of President Trump's arrival in China for his landmark state visit, where he will meet with President Xi to discuss major foreign policy and trade issues.
+</div>
+
+## FoxNewsTwitter — post 341675
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341675_1778706952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TheStoryFNC: “We have time to try him again...”
+
+EXCLUSIVE: South Carolina Attorney General @AGAlanWilson says state will seek speedy trial after Alex Murdaugh’s murder convictions are overturned
+</div>
+
+## pm_afshaa — post 90709
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90709_1778706954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عباس عراقچی:
+نتانیاهو اکنون به‌صورت علنی آنچه را که نهادهای امنیتی ایران مدت‌ها قبل به رهبری ما منتقل کرده بودند، افشا کرده. دشمنی با ملت بزرگ ایران، قماری احمقانه‌ است؛ و همکاری و همدستی با اسرائیل در این مسیر، غیرقابل بخشش است. کسانی که در همدستی با اسرائیل برای ایجاد تفرقه نقش دارند، باید پاسخگو باشند.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75454
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75454_1778706954.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه امارات متحده عربی اعلام کرد گزارش‌های منتشرشده درباره سفر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به این کشور صحت ندارد.
+پیش‌تر دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ آمریکا و اسرائیل با جمهوری اسلامی، به‌طور مخفیانه به امارات متحده عربی سفر کرده و در این سفر با محمد بن زاید آل نهیان، رییس امارات متحده عربی، دیدار کرد.
+وزارت خارجه امارات متحده عربی اعلام کرد روابط این کشور با اسرائیل علنی است و در چارچوب توافق‌نامه‌های ابراهیم که به‌طور عمومی اعلام شده‌اند، برقرار شده است.
+وزارت خارجه امارات متحده عربی افزود این روابط مبتنی بر محرمانگی نیست و هرگونه ادعا درباره سفرها یا ترتیبات اعلام‌نشده «بی‌اساس» است، مگر آن‌که به‌صورت رسمی از سوی امارات متحده عربی اعلام شود.
+عباس عراقچی در واکنش به سفر نتانیاهو به امارات متحده عربی در زمان جنگ، نوشت: همکاری با اسرائیل در این مسیر غیرقابل بخشش است. افرادی که برای ایجاد اختلاف با اسرائیل همکاری می‌کنند، پاسخگو خواهند شد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87392
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87392_1778706954.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدئویی پربازخورد در فضای مجازی از تشبیه فروشندگان vpn به خوک
+
+سپاه و ستاد اجرايي فروشندگان اصلي اينترنت پرو و وي پي ان هستند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اینترنشنال: احسان افرشته «امان نامه» داشت اما اعدام شد قوه قضاییه جمهوری اسلامی خبر داد احسان افرشته، جوان ۳۳ ساله‌، را به اتهام همکاری با اسرائیل، اعدام کرده اما دو منبع گفتند او، پیش از بازگشت به ایران از ترکیه، به‌طور داوطلبانه خود را به وزارت اطلاعات…
+</div>
+
+## IranIntlTV — post 337062
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337062_1778706955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد بارگیری نفت از پایانه اصلی صادرات نفت ایران در جزیره خارک متوقف شده است.
+
+بر اساس این گزارش، ظرفیت مخازن ذخیره نفت نیز در حال پر شدن است و در صورت تکمیل ظرفیت، ایران ممکن است ناچار به کاهش تولید نفت شود.
+
+گفت‌وگو با ایمان ناصری، مشاور بازار نفت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337061
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337061_1778706957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمعات حکومتی شبانه، بلای جان نظام و مجتبی
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/SepDBES4ITI
+@iranintltv
+</div>
+
+## IranIntlTV — post 337060
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337060_1778706959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمعات حکومتی شبانه، بلای جان نظام و مجتبی
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/SepDBES4ITI
+@iranintltv
+</div>
+
+## IranIntlTV — post 337059
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337059" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: تجمعات حکومتی شبانه، بلای جان نظام و مجتبی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337058
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337058_1778706961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه امارات متحده عربی اعلام کرد گزارش‌های منتشرشده درباره سفر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به این کشور صحت ندارد.
+پیش‌تر دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ آمریکا و اسرائیل با جمهوری اسلامی، به‌طور مخفیانه به امارات متحده عربی سفر کرده و در این سفر با محمد بن زاید آل نهیان، رییس امارات متحده عربی، دیدار کرد.
+وزارت خارجه امارات متحده عربی اعلام کرد روابط این کشور با اسرائیل علنی است و در چارچوب توافق‌نامه‌های ابراهیم که به‌طور عمومی اعلام شده‌اند، برقرار شده است.
+وزارت خارجه امارات متحده عربی افزود این روابط مبتنی بر محرمانگی نیست و هرگونه ادعا درباره سفرها یا ترتیبات اعلام‌نشده «بی‌اساس» است، مگر آن‌که به‌صورت رسمی از سوی امارات متحده عربی اعلام شود.
+عباس عراقچی در واکنش به سفر نتانیاهو به امارات متحده عربی در زمان جنگ، نوشت: همکاری با اسرائیل در این مسیر غیرقابل بخشش است. افرادی که برای ایجاد اختلاف با اسرائیل همکاری می‌کنند، پاسخگو خواهند شد.
+https://iranintl.com/202605138383
+</div>
+
+## IranIntlTV — post 337057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فدراسیون فوتبال ایران در بحران مالی؛ گوگل جمینای حامی تیم‌های ملی فوتبال عراق و مراکش شد
+
+همزمان با تحریم‌های بانکی و مشکلات مالی فدراسیون فوتبال ایران، جمینای (هوش مصنوعی شرکت گوگل) اعلام کرد حامی مالی و فناوری تیم‌های ملی عراق و مراکش در جام جهانی ٢٠٢۶ شده است. گوگل گفته قصد دارد با این قرارداد اسپانسری، «فاصله میان تیم‌ها و هواداران جهانی آنها را کاهش دهد.»
+
+در این بیانیه آمده است: «ما با هیجان اعلام می‌کنیم که گوگل جمینای به عنوان حامی رسمی فناوری تیم‌های ملی فوتبال عراق و مراکش انتخاب شده است. این حمایت با بهره‌گیری از فناوری پیشرفته هوش مصنوعی ما، فرهنگ غنی ورزشی منطقه را گرامی می‌دارد و تجربه هواداران را متحول خواهد کرد.»
+این همکاری بر استفاده از هوش مصنوعی برای تولید محتوای فراگیر و فراهم کردن شیوه‌های نوآورانه تعامل هواداران با بازیکنان و تیم‌های محبوبشان متمرکز است.
+
+گوگل جمینای گفته در همکاری با فدراسیون‌های فوتبال، طی سه ماه آینده مجموعه‌ای از برنامه‌های هوادارمحور اجرا خواهد شد: «هواداران می‌توانند با استفاده از مدل تبدیل متن به تصویر جمینی موسوم به «نانو بنانا» تصاویر تشویقی اختصاصی خلق کنند یا با مدل تبدیل متن به موسیقی «لایریا» سرودهای تیمی بسازند و حمایت خود را به شکلی زنده تجربه کنند؛ گویی در زمین حضور دارند.»
+
+همچنین هواداران می‌توانند از گوگل جمینی برای توضیح قوانین پیچیده فوتبال، تحلیل عملکرد مسابقات و پیش‌بینی تیم‌های پیروز استفاده کنند.
+همکاری مالی و فناوری جمینای با فدراسیون‌های فوتبال عراق و مراکش درحالی است که روز گذشته فارس، رسانه وابسته به سپاه پاسداران، گزارش داد تیم ملی فوتبال برای اجرای برنامه آماده‌سازی خود در ترکیه، به تزریق فوری منابع مالی نیاز دارد؛ منابعی که پیش‌تر وعده پرداخت آن داده شده بود.
+🔗وب‌سایت ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337056
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337056_1778706962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش الحدث، دو پهپاد انتحاری مقر حزب دموکرات کردستان ایران در شمال اربیل عراق را هدف قرار دادند.
+
+همزمان رویترز به نقل از منابع امنیتی گزارش داد در این حمله پهپادی یک انبار سلاح و مهمات در داخل این اردوگاه هدف قرار گرفته است.
+https://iranintl.com/202605131072
+</div>
+
+## IranIntlTV — post 337055
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337055" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: سرنوشت جمهوری‌اسلامی، موضوع گفتگوهای ترامپ در چین
+@iranintlTV
+</div>
+
+## Shin_Persian — post 5995
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_5995_1778706963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: DefenceGeek 🇬🇧 ✓ @DefenceGeek Wed, 13 May 2026 19:49:28 UTC B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.…
+</div>
+
+## Shin_Persian — post 5994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Wed, 13 May 2026 19:49:28 UTC
+
+B-2 Spirit on a training flight from CONUS as part of a suspected STRATCOM exercise involving the E-6B flying out of Stuttgart
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+بمب‌افکن بی‌-۲ اسپیریت (B-2 Spirit) در یک پرواز آموزشی از خاک اصلی ایالات متحده (CONUS) به عنوان بخشی از یک رزمایش احتمالی فرماندهی راهبردی ایالات متحده (STRATCOM) که شامل هواپیمای ای-۶بی (E-6B) در حال پرواز از اشتوتگارت است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5993
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📦 mhrv-rs v1.9.25 released
+
+• Install MITM CA into LibreWolf NSS stores (#1145, PR #1159)
+• **Fix Full mode "Google + most websites broken while Telegram works"
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.25 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1925
+</div>
+
+## ManotoTV — post 105420
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105420_1778706963.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه امارات متحده عربی گزارش‌ها درباره سفر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، یا استقبال از یک هیات نظامی اسرائیلی را رد کرد.
+
+سخنگوی وزارت خارجه امارات گفت روابط این کشور با اسرائیل، روابطی علنی است که در چارچوب توافق ابراهیم و به‌صورت رسمی و عمومی شکل گرفته و مبتنی بر روابط پنهانی یا توافق‌های مخفی نیست.
+
+او تاکید کرد هرگونه ادعا درباره سفرها یا توافق‌های اعلام‌نشده، تا زمانی که از سوی نهادهای رسمی امارات تایید نشود، بی‌اساس است.
+
+سخنگوی وزارت خارجه امارات همچنین از رسانه‌ها خواست در انتشار اخبار دقت کنند و از بازنشر اطلاعات تاییدنشده خودداری کنند.
+</div>
+
+## ManotoTV — post 105419
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105419_1778706964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت وضعیت آموزش فاجعه شده…
+بچه‌هایی که حتی پایه‌ترین چیزها رو بلد نیستن.»
+</div>
+
+## ManotoTV — post 105418
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105418_1778706965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+سنای آمریکا طرح پیشنهادی برای پایان دادن به مشارکت نظامی این کشور در جنگ با جمهوری اسلامی را رد کرد.
+
+این طرح که با هدف الزام دولت آمریکا به خروج نیروهای درگیر در جنگ ارائه شده بود، با ۵۰ رای مخالف در برابر ۴۹ رای موافق تصویب نشد؛ جمهوری‌خواهان سنای آمریکا عمدتاً با محدود شدن اختیارات نظامی دونالد ترامپ مخالفت کردند.
+
+سه سناتور جمهوری‌خواه به این طرح رای مثبت دادند و لیزا مورکوفسکی، سناتور جمهوری‌خواه، برای نخستین بار از زمان آغاز جنگ، به درخواست خروج نیروهای آمریکایی از درگیری با جمهوری اسلامی رای داد.
+
+دموکرات‌ها در هفته‌های اخیر چندین طرح مشابه ارائه کرده‌اند و می‌گویند طبق قانون اساسی آمریکا، اختیار اعلام جنگ در دست کنگره است و باید اختیارات قوه مقننه در برابر دولت حفظ شود.
+
+بر اساس قوانین آمریکا، رئیس‌جمهوری می‌تواند در صورت وجود تهدید فوری، اقدام نظامی را آغاز کند، اما برای ادامه درگیری بیش از ۶۰ روز، نیاز به مجوز کنگره دارد.
+</div>
+
+## FarsiVOA — post 217670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بررسی پوشش اخبار درگیری نظامی با جمهوری اسلامی در رسانه‌های غربی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حملە امارات و عربستان بە جمهوری اسلامی و سفر مخفیانە نخست وزیر اسرائیل بە امارات
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺رویترز: عربستان و کویت در جریان عملیات «خشم حماسی» نیابتی‌های جمهوری اسلامی در عراق را هدف قرار دادند
+
+▪️خبرگزاری رویترز به نقل از منابع امنیتی و نظامی گزارش داده است که عربستان سعودی در جریان عملیات «خشم حماسی» مواضع شبه‌نظامیان شیعه مورد حمایت رژیم ایران در عراق را هدف حملات هوایی قرار داد. علاوه بر این، حملات تلافی‌جویانه‌ای نیز از خاک کویت علیه اهدافی در عراق انجام شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/reuters-saudi-arabia-kuwait-attacked-iraq-iranian-militias/8149641.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️وام «ارزان» و کلان شرکت خودروسازی سایپا از مردم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جی‌دی‌ ونس در مورد در مذاکرات با جمهوری اسلامی: فکر می‌کنم پیشرفت‌هایی حاصل شده است
+
+▪️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، روز چهارشنبه در گفت‌وگو با خبرنگاران گفت که در مذاکرات با جمهوری اسلامی پیشرفت‌هایی حاصل شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8149643.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در برنامه تفسیر خبر امروز، مهدی آقازمانی با کارشناسان مهمان، درباره سفر تاریخی پرزیدنت ترامپ به چین و موضوع ایران به عنوان یکی از محورهای گفتگوی رهبران دو کشور ، گفتگو می‌کند
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بنیامین نتانیاهو: من می‌خواهم دانش‌آموزان اسرائیلی در استفاده از ChatGPT، Claude و پیشرفته‌ترین ابزارهای هوش مصنوعی جهان - و حتی قبل از فارغ‌التحصیلی از دبیرستان - بهترین باشند. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14078
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14078_1778706965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بنیامین نتانیاهو:
+
+من می‌خواهم دانش‌آموزان اسرائیلی در استفاده از ChatGPT، Claude و پیشرفته‌ترین ابزارهای هوش مصنوعی جهان - و حتی قبل از فارغ‌التحصیلی از دبیرستان - بهترین باشند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14077
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14077_1778706967.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢امارات متحده عربی دیدار مخفیانه نتانیاهو از ابوظبی در طول جنگ با ایران را تکذیب کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14076
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14076_1778706967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انهدام پهپاد انتحاری روسی توسط سرباز اوکراینی در لحظات آخر
+
+ویدئویی منتشر شده که نشان می‌دهد یک سرباز اوکراینی با استفاده از سلاح «آکا-۷۴» موفق می‌شود یک پهپاد انتحاری کواد را تنها لحظاتی پیش از برخورد منهدم کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14075
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14075" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 6.71 مگابایت
+
+اتاق جنگ چهارشنبه 23 اردیبهشت | جمهوری اسلامی ناو امریکایی را تهدید به حمله کرد.
+
+فورمت mp3 همیشگی
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/xKXwDy6wYig?feature=share
+</div>
+
+## RadioFarda — post 157154
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157154_1778706969.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸منابع امنیتی از دو حملۀ پهپادی به کمپ شبه‌نظامیان کرد مخالف جمهوری اسلامی، در شمال شهر اربیل واقع در اقلیم کردستان عراق خبر می‌دهند.
+
+🔸به گفتۀ این منابع، یک زاغه تجهیزات و مهمات در داخل این اردوگاه هدف قرار گرفته است. گزارشی از تلفات احتمالی این حملات منتشر نشده است.
+
+🔸سه روز پیش هم حمله مشابهی به اردوگاهی دیگر در شرق اربیل رخ داده بود.
+
+🔸طی ماه‌های اخیر سپاه پاسداران بارها مواضع شبه‌نظامیان کرد مخالف جمهوری اسلامی در اقلیم کردستان را با پهپاد و موشک هدف قرار داده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20093
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزیر خارجه سوریه :
+
+میخوایم روابطمون با داداشیمون اسرائیل رو قوی تر کنیم و به حاکمیت هم احترام بزاریم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گوگل رسما اعلام کرد در جام جهانی اسپانسری تیم های ملی عراق و مراکش رو گرفته و تمامی هزینه های این تیم هارو‌ میده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عراقچی :
+
+هرکسی بخواد با ما دشمنی کنه و با اسرائیل تبانی کنه بد پشیمون میشه
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20090
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20090_1778706970.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+املت هم‌ تو‌ این مملکت قسطی شد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20089
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20089_1778706970.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مهدی تاج رئیس فدراسیون فوتبال :
+
+معین قراره برای تیم ملی یه آهنگ بخونه !
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 280965
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بعد از خبر حملات امارات به ایران، رویترز می‌گوید عربستان هم در خلال جنگ حملات متعددی علیه ایران انجام داده است
+
+گزیده‌هایی از مصاحبه موسی شریفی، تحلیلگر جهان عرب از ریاض عربستان را با پریزاد نوبخت ببیند که می‌گوید که عربستان برخلاف امارات به‌دنبال شکست ایران نیست و نمی‌‌خواهد توازن قدرت در منطقه دچار خلاء شود.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 280958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🖊روناک فرجی، روزنامه‌نگار
+
+جشنواره فیلم کن امسال در حالی کار خود را در ساحل «کروآزت» آغاز کرده که برخلاف برخی دوره‌های اخیر، تمرکز اصلی آن دوباره به سینمای مؤلف و فیلم‌سازان شناخته‌شده اروپایی و آسیایی بازگشته است.
+
+هفتاد و نهمین دوره جشنواره بین‌المللی فیلم کن با حضور ستارگان سینما، فیلمسازان و اعضای هیئت داوران در جنوب فرانسه آغاز شد و فرش قرمز این رویداد میزبان چهره‌های سرشناس صنعت سینما بود.
+
+جشنواره این دوره شمار بی‌سابقه‌ای از شرکت‌کنندگان را جذب کرده است؛ افرادی که برای خرید آثار اغلب مستقل و کم‌هزینه رقابت می‌کنند، در حالی که استودیوهای بزرگ محتاط‌‌تر شده‌اند و کمتر ریسک می‌کنند.
+
+حدود ۱۶ هزار نفر از فعالان صنعت سینما برای حضور در بزرگ‌ترین بازار فیلم جهان ثبت‌نام کرده‌اند که از ۱۲ تا ۲۰ مه همزمان با جشنواره فیلم کن برگزار می‌شود.
+
+در مراسم افتتاحیه جشنواره، نخل طلای افتخاری برای یک عمر فعالیت هنری به پیتر جکسون، کارگردان فیلم‌های «ارباب حلقه‌ها» و «کینگ کونگ»، اهدا شد.
+
+برای خواندن ادامه مطلب به لینک زیر مراجعه کنید:
+
+https://bbc.in/4dhST0w
+📷Getty Images
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389405
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389405_1778706971.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی تاج:
+معین قراره برای تیم ملی آهنگ بخونه
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دموکرات‌های سنای آمریکا برای هفتمین‌بار کیر خوردن،
+
+طرح محدود کردن اختیارات جنگی شیر خدا برای پایان دادن به جنگ با روافض هزار پدر رو برای بار هفتم به رأی گذاشتن و به تعداد هفت روز هفته کیر خوردن،
+
+اما خب جای نگرانی داشت اندکی چون در عین حال خیلی ناپلئونی رأی نیاورد،
+
+رأی ۴۹ موافق در مقابل ۵۰ مخالف.
+
+موافقان محدود کردن اختیارات شیر جنگجوی خدا تقریباً همه‌ی دموکرات‌ها به علاوه‌ی سه سناتور قرمدنگ جمهوری‌خواه به نام‌های: Rand Paul ، Susan Collins ، Lisa Murkowski ،
+که این اولین باری بود که سناتور قرمساق جمهوری‌خواه Murkowski به نفع طرح رأی داد.
+
+تنها سناتور شریف دموکرات John Fetterman از پنسیلوانیا بود که دوباره با جمهوری‌خواهان همراه شد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش به کارکنان شعب لمیز ونک به پایین یاد بدین که وقتی یه آقای مسن میاد تو ازتون میپرسه «هویج بستنی» دارین نگین نه چیچیاتو میچیاتو و فولان داریم، عین آدم به بنده‌ خدای گرما زده توضیح بدید که چه محصول عادی و خنکی میتونه سفارش بده، چون این کار وظیفه منِ مشتری نیست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105420
+
+<div align="center">
+  <a href="telegram/content/manototv_105420_1778706972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه امارات متحده عربی گزارش‌ها درباره سفر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، یا استقبال از یک هیات نظامی اسرائیلی را رد کرد.
+
+سخنگوی وزارت خارجه امارات گفت روابط این کشور با اسرائیل، روابطی علنی است که در چارچوب توافق ابراهیم و به‌صورت رسمی و عمومی شکل گرفته و مبتنی بر روابط پنهانی یا توافق‌های مخفی نیست.
+
+او تاکید کرد هرگونه ادعا درباره سفرها یا توافق‌های اعلام‌نشده، تا زمانی که از سوی نهادهای رسمی امارات تایید نشود، بی‌اساس است.
+
+سخنگوی وزارت خارجه امارات همچنین از رسانه‌ها خواست در انتشار اخبار دقت کنند و از بازنشر اطلاعات تاییدنشده خودداری کنند.
+</div>
+
+## manototv — post 105419
+
+<div align="center">
+  <a href="telegram/content/manototv_105419_1778706972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت وضعیت آموزش فاجعه شده…
+بچه‌هایی که حتی پایه‌ترین چیزها رو بلد نیستن.»
+</div>
+
+## manototv — post 105418
+
+<div align="center">
+  <a href="telegram/content/manototv_105418_1778706974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+سنای آمریکا طرح پیشنهادی برای پایان دادن به مشارکت نظامی این کشور در جنگ با جمهوری اسلامی را رد کرد.
+
+این طرح که با هدف الزام دولت آمریکا به خروج نیروهای درگیر در جنگ ارائه شده بود، با ۵۰ رای مخالف در برابر ۴۹ رای موافق تصویب نشد؛ جمهوری‌خواهان سنای آمریکا عمدتاً با محدود شدن اختیارات نظامی دونالد ترامپ مخالفت کردند.
+
+سه سناتور جمهوری‌خواه به این طرح رای مثبت دادند و لیزا مورکوفسکی، سناتور جمهوری‌خواه، برای نخستین بار از زمان آغاز جنگ، به درخواست خروج نیروهای آمریکایی از درگیری با جمهوری اسلامی رای داد.
+
+دموکرات‌ها در هفته‌های اخیر چندین طرح مشابه ارائه کرده‌اند و می‌گویند طبق قانون اساسی آمریکا، اختیار اعلام جنگ در دست کنگره است و باید اختیارات قوه مقننه در برابر دولت حفظ شود.
+
+بر اساس قوانین آمریکا، رئیس‌جمهوری می‌تواند در صورت وجود تهدید فوری، اقدام نظامی را آغاز کند، اما برای ادامه درگیری بیش از ۶۰ روز، نیاز به مجوز کنگره دارد.
+</div>
+
+## alonews — post 119829
+
+<div align="center">
+  <a href="telegram/content/alonews_119829_1778706974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خیلی شیک و‌ مجلسی روی شیشه دفاتر پیشخوان آگهی فروش اینترنت پرو میزنن که تلگرام هم روش بدون فیلتره.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119828
+
+<div align="center">
+  <a href="telegram/content/alonews_119828_1778706974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مدیرعامل شهر فرودگاهی امام : روزانه بین ۳۵ تا ۴۰ پرواز از فرودگاه انجام می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119827
+
+<div align="center">
+  <a href="telegram/content/alonews_119827_1778706974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوش‌چشم: ترامپ رفته چین التماس کنه تا میانجی بشه که ایران جنگ رو تموم کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119826
+
+<div align="center">
+  <a href="telegram/content/alonews_119826_1778706974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تمرینه بمب‌افکنِ " B-52 " و فرود به پایگاه فِرفورد بریتانیا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119825
+
+<div align="center">
+  <a href="telegram/content/alonews_119825_1778706976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بابک زنجانی: در تاریخ ۲۸ خرداد، شبکه اجتماعی مای دات به‌صورت فراگیر برای عموم بازگشایی و طی مراسمی در برج میلاد رونمایی خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119824
+
+<div align="center">
+  <a href="telegram/content/alonews_119824_1778706976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈روزنامه South China Morning Post: شرکت تصاویر ماهواره‌ای چینی MizarVision که با تحلیل‌های خود از استقرارهای نظامی آمریکا در جنگ آمریکا و اسرائیل علیه ایران به شهرت رسید، افزوده شدن خود به فهرست تحریم‌های آمریکا را به عنوان نشان افتخاری در کمپین استخدامی خود به کار می‌برد.
+
+
+
+🔴این استارت‌آپ اطلاعاتی با منابع باز (OSINT) که با نام رسمی Meentropy Technology Hangzhou Co Ltd شناخته می‌شود، در تحلیل داده‌های ماهواره‌های تجاری تخصص دارد و در ماه‌های اخیر چندین بار تحرکات نظامی آمریکا را رصد کرده است.
+
+
+🔴این شرکت روز جمعه به فهرست تحریم وزارت خزانه‌داری آمریکا اضافه شد که در  پی انتشار «تصاویر با منبع باز که جزئیات فعالیت نظامی آمریکا را در جریان عملیات خشم حماسی (Epic Fury) نشان می‌داد»، صورت گرفته است
+
+﻿
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119822
+
+<div align="center">
+  <a href="telegram/content/alonews_119822_1778706976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هزینه نجومی رجیستری گوشی آیفون ۱۷ و گلکسی سامسونگ!
+
+
+🔴رجیستری پایین ترین گیگ آیفون ۱۷ پرومکس: ۶۰۰ دلار!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119821
+
+<div align="center">
+  <a href="telegram/content/alonews_119821_1778706976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امارات : خبرهایی که درباره سفر نتانیاهو به امارات پخش شده، صحت نداره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119820
+
+<div align="center">
+  <a href="telegram/content/alonews_119820_1778706976.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عراقچی: نتانیاهو اکنون به‌صورت علنی آنچه را که نهادهای امنیتی ایران مدت‌ها قبل به رهبری ما منتقل کرده بودند، افشا کرده است.
+
+
+🔴دشمنی با ملت بزرگ ایران، قماری احمقانه‌ است؛ و همکاری و همدستی با اسرائیل در این مسیر، غیرقابل بخشش است.
+
+
+🔴کسانی که در همدستی با اسرائیل برای ایجاد تفرقه نقش دارند، باید پاسخگو باشند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119819
+
+<div align="center">
+  <a href="telegram/content/alonews_119819_1778706977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال‌استریت ژورنال: در حالی‌که نگرانی‌هایی درباره کاهش ذخیره مهمات ایالات متحده وجود دارد، پنتاگون در حال تلاش برای خرید ۱۰٬۰۰۰ موشک کروز کم‌هزینه در طول سه سال است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119818
+
+<div align="center">
+  <a href="telegram/content/alonews_119818_1778706977.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه ایالات متحده: امروز، وزارت خارجه به‌طور عمومی پیشنهاد سخاوتمندانه ایالات متحده برای ارائه ۱۰۰ میلیون دلار کمک بشردوستانه مستقیم اضافی به مردم کوبا را که با هماهنگی کلیسای کاتولیک و سایر سازمان‌های بشردوستانه مستقل و قابل اعتماد توزیع خواهد شد، مجدداً اعلام می‌کند.
+
+
+🔴تصمیم با رژیم کوبا است که پیشنهاد کمک ما را بپذیرد یا از کمک‌های حیاتی نجات‌بخش زندگی خودداری کند و در نهایت در برابر مردم کوبا به دلیل ایستادگی در برابر کمک‌های حیاتی پاسخگو باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119817
+
+<div align="center">
+  <a href="telegram/content/alonews_119817_1778706977.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کوین وارش با رأی ۵۴ به ۴۵ سنا ایالات متحده به عنوان رئیس فدرال رزرو تأیید شد.
+
+
+🔴 جان فترمن تنها دموکراتی بود که از این تأیید حمایت کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119816
+
+<div align="center">
+  <a href="telegram/content/alonews_119816_1778706978.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور خارجه سوریه: دمشق خواهان دستیابی به توافقی امنیتی با اسرائیل است که بر پایه احترام متقابل به حاکمیت دو طرف و حفظ ثبات منطقه شکل بگیرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 23:21
 ---
 
@@ -2282,8 +3322,6 @@ https://ir.voanews.com/a/execution-iran-protest-mehrab-abdolahzadeh-/8149537.htm
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
